@@ -6,4 +6,10 @@ Meu nome é karolayne gabriely
 - EStou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organizaçao e compartilhamento dos meu projetos desvolvidos
 
-### Voc
+### Voce entrar em contato comigo 📫
+
+K0142024@gmail.com
+
+@karolaynegabriely
+
+
